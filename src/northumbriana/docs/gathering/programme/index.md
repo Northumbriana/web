@@ -7,7 +7,7 @@ sidebar_position: 1
 **Annual festival of Northumberland's traditional music, dance, dialect, crafts, stories, heritage, family events and special themed Vanbrugh Revisited events for the 300th anniversary of Town Hall architect Sir John Vanbrugh.**
 
 :::info[Download PDF version]
-A [downloadable PDF version of the programme is available here](../assets/pdfs/programme-2026.pdf)
+A [downloadable PDF version of the programme and venue map is available here](../assets/pdfs/programme-2026.pdf)
 :::
 
 ### Before the Gathering: Friday 20th March
@@ -73,7 +73,7 @@ Official opening of the Gathering by the Mayor of Morpeth, Cllr Rachael Hogg<br/
 Tours of Mayor’s Parlour, Council Chamber, civic silver, portraits, etc., with Mayor & councillors as your guides<br/>
 *Town Hall, Free*
 
-**2.45pm – 3.30pm WAULKING SONGS AND DULCIMERS WORKSHOP**
+**3pm – 4pm GAELIC SONGS AND DULCIMERS WORKSHOP**
 
 With Linn Phipps and Sandie & Ken Hudson (bring any instrument and/or voice!)<br/>
 *Bagpipe Museum, £3/£1 door*
@@ -95,7 +95,7 @@ Ray Alexander as John Vanbrugh presents “A Life of Irony” + Stewart Hardy (f
 
 **8.00pm SINGAROUND** *venue to be confirmed*
 
-led by Ed Lawrence and Sam Dodds <br/>
+Led by Ed Lawrence and Sam Dodds <br/>
 *Free (donations welcome)*
 
 **8.00pm MUSICIANS’ SESSION**
