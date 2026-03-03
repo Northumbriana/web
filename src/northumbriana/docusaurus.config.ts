@@ -55,6 +55,14 @@ const config: Config = {
     ],
   ],
 
+  scripts: [
+    {
+      src: 'https://scripts.simpleanalyticscdn.com/latest.js',
+      async: true,
+      defer: true,
+    },
+  ],
+
   themeConfig: {
     image: 'img/docusaurus-social-card.jpg',
     navbar: {
