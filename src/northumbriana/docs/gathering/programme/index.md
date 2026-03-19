@@ -147,10 +147,6 @@ Gadgy’s Welcome at Market Place<br/>
 Taffy Thomas’s stories , dancers, music <br/>
 *Old Bakehouse Yd Millen Green*
 
-**12.00noon – 1.15pm CATERWAULING SCRAPES OF THRASHING FIDDLERS** 
-
-Vic Gammon <br/>
-*St Robert’s Ch Hall, £4/£1 door*
 
 **12.00noon MUSICIANS’ SESSION** 
 
@@ -247,9 +243,10 @@ with Linn Phipps <br/>
 
 *Tap & Spile, Free*
 
-**12.30pm – 1.30pm TAFFY THOMAS & MOSSY CHRISTIAN** 
+**12.30pm – 1.30pm THE STORYTELLER’S ALMANAC** 
 
-New stories & music show <br/>
+Mossy Christian & Taffy Thomas MBE with Tales & Tunes of Folk<br/>
+
 *St James Centre, £5/£1 at door*
 
 **12.30pm – 1.30pm MUSIC EVENT** to be fixed 
