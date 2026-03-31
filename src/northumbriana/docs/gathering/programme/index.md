@@ -65,7 +65,7 @@ Singalong with Ian McKone Bagpipe Museum<br/>
 
 **2.00pm OFFICIAL OPENING**
 
-Official opening of the Gathering by the Mayor of Morpeth, Cllr Rachael Hogg<br/>
+Official opening of the Gathering by the Deputy Mayor of Morpeth, Cllr Wendy Fail<br/>
 *Town Hall Exhibition*
 
 **2.15pm - 4.00pm TOWN TREASURES**
@@ -83,7 +83,7 @@ With Linn Phipps and Sandie & Ken Hudson (bring any instrument and/or voice!)<br
 Taffy Thomas<br/>
 *Library, Free*
 
-**5.00pm – 6.00pm THE BAILIFFS’ BALL**
+**4.30pm – 5.30pm THE BAILIFFS’ BALL**
 
 Dance event recreating a Morpeth grand assembly of 1726<br/>
 *Town Hall Ballroom, £3/£1*
@@ -118,6 +118,10 @@ Taffy Thomas<br/>
 Punch & Judy, music, Ellington Colliery Band, local morris, clog and rapper teams<br/>
 *Market Place, Park, Bakehse Millenn Green*
 
+**10.00am – 4.00pm EAST INDIA COPANY LIVING HISTORY**
+
+*Park, Free*
+
 **10.00am – 4.00pm MORPETH CASTLE OPEN DAY** 
 
 History, stories & music. Arranged with Landmark Trust <br/>
@@ -147,6 +151,10 @@ Gadgy’s Welcome at Market Place<br/>
 Taffy Thomas’s stories , dancers, music <br/>
 *Old Bakehouse Yd Millen Green*
 
+**12.00noon – 1.15pm CATERWAULING SCRAPES OF THRASHING FIDDLERS** 
+
+Vic Gammon <br/>
+*St Robert’s Ch Hall, £4/£1 door*
 
 **12.00noon MUSICIANS’ SESSION** 
 
@@ -243,15 +251,10 @@ with Linn Phipps <br/>
 
 *Tap & Spile, Free*
 
-**12.30pm – 1.30pm THE STORYTELLER’S ALMANAC** 
+**12.30pm – 1.30pm GALLIARD CONSORT** 
 
-Mossy Christian & Taffy Thomas MBE with Tales & Tunes of Folk<br/>
-
-*St James Centre, £5/£1 at door*
-
-**12.30pm – 1.30pm MUSIC EVENT** to be fixed 
-
-*Bagpipe Museum*
+Open rehearsal of recorder music from Vanbrugh's time<br/>
+*Bagpipe Museum, £3/£1*
 
 **2.00pm – 3.00pm DROP-IN DULCIMER WORKSHOP** 
 
@@ -261,6 +264,7 @@ Nonsuch Dulcimer Club ‘Come and Try’ session on hammered and mountain dulcim
 **2.15pm – 3.30pm FAMILY CEILIDH** 
 
 Little Big Blue Ceilidh Band
+*St. James Centre, £4/£1 requested at the door*
 
 ---
 
