@@ -193,7 +193,7 @@ Session led by BITS NE for beginners + intermediates <br/>
 
 **4.00pm – 5.15pm MORPETH’S MERRIE MUSICKES** 
 
-Early 18th century music from countryside and theatre (Vanbrugh’s vintage) with Bennett Hogg, Matt Seattle and friends on strings and Border pipes <br/>
+Early 18th century music from countryside and theatre (Vanbrugh’s vintage) with Bennett Hogg, John Treherne, Matt Seattle and friends on strings and Border pipes <br/>
 *Bagpipe Museum, £6/£2 ticket*
 
 **6.30pm – 8.30pm WINNERS’ CONCERT 2025** 
