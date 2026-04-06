@@ -1,6 +1,6 @@
 # Outdoor Events
 
-See the [full programme here](../programme).
+See the [full programme here](../programme/).
 
 ## Friday
 
