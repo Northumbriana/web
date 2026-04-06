@@ -41,8 +41,8 @@ Craft competition entries (rec’d Thur. 9th April 5.30 pm–7 pm), craft displa
 
 **10.00am - 4.00pm OUTDOOR ENTERTAINERS**
 
-Punch & Judy, music, song, history<br/>
-*Market Place, Arcade*<br/> 
+[Click here for full timetable of outdoor entertainers](outdoor-events#friday)<br/>
+
 *Free*
 
 **10.00am – 4.30pm DANCE WORKSHOPS**
@@ -115,10 +115,11 @@ Taffy Thomas<br/>
 
 **10.00am – 4.00pm OUTDOOR ENTERTAINERS** 
 
-Punch & Judy, music, Ellington Colliery Band, local morris, clog and rapper teams<br/>
-*Market Place, Park, Bakehse Millenn Green*
+[Click here for full timetable of outdoor entertainers](outdoor-events#saturday)<br/>
 
-**10.00am – 4.00pm EAST INDIA COPANY LIVING HISTORY**
+*Free*
+
+**10.00am – 4.00pm EAST INDIA COMPANY LIVING HISTORY**
 
 *Park, Free*
 
@@ -148,9 +149,8 @@ Gadgy’s Welcome at Market Place<br/>
 
 **12.00noon – 4.00pm STORYTELLER’S GARDEN** 
 
-Taffy Thomas’s stories , dancers, music <br/>
+Taffy Thomas’s stories, dancers, music <br/>
 *Old Bakehouse Yd Millen Green*
-
 
 **12.00noon MUSICIANS’ SESSION** 
 
@@ -225,8 +225,9 @@ Sorry, no Sunday Crafts Exhibition this year
 
 **10.30am – 2.30pm OUTDOOR ENTERTAINERS** 
 
-Punch & Judy, Duke’s Dandy Clog, musicians, maypole <br/>
-*Market Place*
+[Click here for full timetable of outdoor entertainers](outdoor-events#sunday)<br/>
+
+*Free*
 
 **10.30am – 12.00noon MORPETH HERITAGE WALK** 
 
