@@ -45,6 +45,11 @@ Craft competition entries (rec’d Thur. 9th April 5.30 pm–7 pm), craft displa
 
 *Free*
 
+**10.00am – 4.00pm FAMILY ART DROP-IN**
+
+18th Century Selfie Station: Turn your silhouette into art!<br/>
+*Town Hall, donations welcome*
+
 **10.00am – 4.30pm DANCE WORKSHOPS**
 - 10.00–11 Historic dances from early 18th century
 - 11.30–12.30 Clog (bring flat shoes)
