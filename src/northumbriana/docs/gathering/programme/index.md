@@ -46,12 +46,12 @@ Craft competition entries (rec’d Thur. 9th April 5.30 pm–7 pm), craft displa
 *Free*
 
 **10.00am – 4.30pm DANCE WORKSHOPS**
-- 10.00 –11 Historic dances from early 18th century
+- 10.00–11 Historic dances from early 18th century
 - 11.30–12.30 Clog (bring flat shoes)
 - 1–2pm Maypole
-- 3-4pm Longsword Town Hall Ballroom 
+- 3-4pm Longsword 
 
-*£3/£1 at door per session*
+*Town Hall Ballroom £3/£1 at door per session*
 
 **11.00am-1.00pm HAVE-A-GO NORTHUMBRIAN PIPES**
 
