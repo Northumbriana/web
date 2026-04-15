@@ -244,10 +244,6 @@ Highly Commended: John Robertson, "Drift Wood”
 
     - 1st: Nickie Dailly (Cambridge)
 
-**C17D Northumberland Clog Championship**
-
-    - 1st: Nickie Dailly
-
 **C18 Northumbrian Speech**
 
     - 1st: Graham Bell
