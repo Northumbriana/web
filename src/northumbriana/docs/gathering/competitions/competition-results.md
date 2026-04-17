@@ -109,9 +109,9 @@ Highly Commended: Victoria Smith (Morpeth)
 **A73B Cuddy Butterfield Costume**
 
     - 1st: Ray Alexander (Sir John Vanbrugh)
-    - 2nd= Vincent Syson (Piper in Plaid)
+    - 2nd=: Vincent Syson (Piper in Plaid)
     - 2nd=: Jim Grant (storyteller)
-    - 2nd= Big-Hatted Time Bandit
+    - 2nd=: Andrew Davison of EIC
 
 
 ## Group B: Writing & Composing
@@ -177,8 +177,8 @@ Highly Commended: John Robertson, "Drift Wood”
 
 **C1 Junior Singing**
 
-    - 1st: Martha Darcy (Otterburn)
-    - 2nd: Lola Evans (Rothbury)
+    - 1st: Lola Evans (Rothbury)
+    - 2nd: Martha Darcy (Otterburn) 
 
 **C3 Unaccompanied Singing**
 
