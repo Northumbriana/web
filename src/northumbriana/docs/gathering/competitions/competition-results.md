@@ -39,7 +39,7 @@ Highly Commended: John & Caroline Turnbull, Split, Croatia
 
 **A35 Needlework Item**
 
-    - 1st: Shirley Manelly (Blyth) 
+    - 1st: Shirley Marvelly (Blyth) 
     - 2nd: Susan Smith (Morpeth) 
     - 3rd: Heather Smith (Morpeth)
 
@@ -86,7 +86,7 @@ Highly Commended: Victoria Smith (Morpeth)
 
 **A66 Wyn Bibby Ingenuity Trophy**
 
-    - 1st: Shirley Marrelly
+    - 1st: Shirley Marvelly
 
 **A70 Shop Window Display**
 
@@ -102,7 +102,7 @@ Highly Commended: Victoria Smith (Morpeth)
 
 **A73A Cushie Butterfield Costume**
 
-    - 1st: Beverley Crawley (Time Bandits)
+    - 1st: Beverley Crowley (Time Bandits)
     - 2nd=: Alison Starkey (shepherdess)
     - 2nd=: Shirley Forster (Have Maypole musician)
 
