@@ -67,7 +67,7 @@ const sidebars: SidebarsConfig = {
       },
       items: [
         'antiquarian-society/newsletter',
-        'antiquarian-society/programme-2025-2026',
+        'antiquarian-society/programme',
         'antiquarian-society/publications',
         'antiquarian-society/mas-contact-us',
         'antiquarian-society/roland-bibby'
