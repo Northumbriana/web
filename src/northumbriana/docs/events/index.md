@@ -16,6 +16,14 @@ Events including Morpeth Antiquarian Society’s annual local history exhibition
 
 Includes evening reception and wine-tasting by Grape and Grain reflecting Northumbrian heritage
 
+## Morpeth Heritage Wine Tasting
+![pdfs/2026-wine-event-jtb-landscape.jpg](pdfs/2026-wine-event-jtb-landscape.jpg)
+
+## Morpeth Antiquarian Society Exhibition
+![pdfs/mas-poster-exhib-2026-landscape.jpg](pdfs/mas-poster-exhib-2026-landscape.jpg)
+
+## Aspects of Northumbrian Piping
+![pdfs/sept-2026-poster-landscape.jpg](pdfs/sept-2026-poster-landscape.jpg)
 
 ## Northumbrian Language Society presents
 
